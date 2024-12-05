@@ -5,7 +5,7 @@ In the dynamic world of mobile gaming, *Coin Master* has emerged as one of the m
 [👉👉 CLICK HERE TO GET NOW FREE LINK 👈👈](https://todaylink.site/CoinsLink/)
 -
 
-![CongratulationsGIF](https://github.com/user-attachments/assets/88da7225-4acf-4d48-b272-3d5dfd1ce55c)](https://todaylink.site/CoinsLink/)
+![CongratulationsGIF](https://github.com/user-attachments/assets/88da7225-4acf-4d48-b272-3d5dfd1ce55c)(https://todaylink.site/CoinsLink/)]
 
 
 ## What is Coin Master?
